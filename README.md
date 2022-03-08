@@ -1,6 +1,6 @@
 ## Bem-Vindo ao Perfil do CALLI, José
 
-➣ 🏫 **Cusando** ADS - FATEC <br>
+➣ 🏫 **Cursando** ADS - FATEC <br>
 ➣ 📚 **Estudando** HMTL/CSS & Java <br>
 ➣ 🌅 **Amante** do Design <br> 
 
